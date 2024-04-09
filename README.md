@@ -7,7 +7,8 @@ no- 👋 Hi, I’m @huzaifahq63
 - ⚡ Fun fact: ...
 - 🍰 16 Oct
 - 💯 Facebook: ... https://www.facebook.com/huzaifa.hq63?mibextid=ZbWKwL
-- 💯 Instagram: ... huziafa.hq63
+- 💯 Instagram: ... https://www.instagram.com/huzaifa.hq63?igsh=N3I4Zzl0cjM5Z3dh
+- 💯 Whatsapp: ... 03043684390
 - 💯 Linkedln: ... https://www.linkedin.com/in/huzaifa-qureshi-5482802b4?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - 💯 Snapchat: ... https://www.snapchat.com/add/huzaifa.hq63?share_id=urgI72U7FLE&locale=en-US
 <!---
