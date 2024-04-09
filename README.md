@@ -11,6 +11,7 @@ no- 👋 Hi, I’m @huzaifahq63
 - 💯 Whatsapp: ... 03043684390
 - 💯 Linkedln: ... https://www.linkedin.com/in/huzaifa-qureshi-5482802b4?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - 💯 Snapchat: ... https://www.snapchat.com/add/huzaifa.hq63?share_id=urgI72U7FLE&locale=en-US
+- 💯 Gmail: ... huzaifa.hq63@gmail.com
 <!---
 huzaifahq63/huzaifahq63 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
